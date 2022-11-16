@@ -1,2 +1,0 @@
-# ZEDWHORES
-experimental porn site
